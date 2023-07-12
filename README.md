@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Baerorozco
-- 👀 I’m interested in 
 - 🌱 I’m currently learning Data Analytics
 - 📫 How to reach me Baerorozco@gmail.com
 
